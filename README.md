@@ -1,0 +1,1 @@
+# GrupoDeEstudosIA_PedraPapelTesoura
